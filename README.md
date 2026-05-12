@@ -40,4 +40,5 @@ To grow into a high-performing Sales Development or Business Development role in
 📫 Connect With Me
 
 LinkedIn: https://www.linkedin.com/in/skylar-spencer-3b8482270/
+
 Email: sskylarsspencer3@gmail.com
